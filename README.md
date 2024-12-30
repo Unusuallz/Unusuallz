@@ -2,4 +2,4 @@
 - 👀 I’m interested in: coding
 - 🌱 I’m currently learning: python (beginner)
 - 📫 How to reach me: discord (Unusuallz)
-- ⚡fact: I play Geometry Dash *hardest is only insane 💀*
+- ⚡fact: I play Geometry Dash (i beat an extreme yipee)
