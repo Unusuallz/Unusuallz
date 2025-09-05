@@ -1,5 +1,5 @@
 - Hi, I’m @Unusuallz
 - 👀 I’m interested in: coding
 - I’m currently learning: python (beginner)
-- How to reach me: discord (Unusuallz)
-- I play Geometry Dash (i beat an extreme yipee)
+- How to reach me: dc (luhymi)
+
